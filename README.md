@@ -1,6 +1,7 @@
 ![](https://komarev.com/ghpvc/?username=toughloving&color=ff69b4)
 
-![image](https://github.com/user-attachments/assets/fe43a99d-7c29-43f5-9abd-8fb51163ac35)
+![image](https://github.com/user-attachments/assets/f8bec32f-94ba-449c-9f17-56ddb1c64ee0)
+
 
 
 [rentry](https://rentry.co/spiralsands)
