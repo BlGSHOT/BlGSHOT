@@ -1,6 +1,6 @@
 ![](https://komarev.com/ghpvc/?username=toughloving&color=ff69b4)
 
-![image](https://github.com/user-attachments/assets/f8bec32f-94ba-449c-9f17-56ddb1c64ee0)
+![image](https://cdn.discordapp.com/attachments/1128012336389697669/1386855361910276168/IMG_1904.png?ex=6861d0b4&is=68607f34&hm=20560be64dc3aee13aa3bc42ef50fe494a0c291da872ccf96735f522348a2f8e&)
 
 
 
