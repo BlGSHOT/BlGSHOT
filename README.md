@@ -1,4 +1,4 @@
-![](https://komarev.com/ghpvc/?username=BlGSHOT&color=ff69b4)
+![](https://komarev.com/ghpvc/?username=BlGSHOT&label=PIPISES)
 
 <img width="2191" height="1394" alt="image" src="https://github.com/user-attachments/assets/66c0d77b-a7cf-4508-b317-9aceb5fea920" />
 
