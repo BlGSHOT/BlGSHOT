@@ -1,8 +1,6 @@
 ![](https://komarev.com/ghpvc/?username=BlGSHOT&color=ff69b4)
 
-![image](<img width="2191" height="1394" alt="image" src="https://github.com/user-attachments/assets/8850cc90-2ffa-40ee-9a04-f5d8913fdd01" />
-)
-
+<img width="2191" height="1394" alt="image" src="https://github.com/user-attachments/assets/66c0d77b-a7cf-4508-b317-9aceb5fea920" />
 
 
 [Check it Out!!! Check out My      ](https://rentry.co/spiralsands)
