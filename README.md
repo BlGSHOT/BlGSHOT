@@ -4,7 +4,7 @@
 
 
 
-[Check it Out!!! Check out My      ](https://rentry.co/spiralsands)
+[D --> Click here for absolutely nothing](https://rentry.co/spiralsands)
 
 <!---
 toughloving/toughloving is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
